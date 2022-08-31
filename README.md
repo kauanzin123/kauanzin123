@@ -1,4 +1,4 @@
- # Kauan Correia 🐣
+ # Kauan Correia 
 -Sempre terá alguma “dor” em você, mas nunca desista. Você quer, você pode, é só superar.
 
 ❤️ 
